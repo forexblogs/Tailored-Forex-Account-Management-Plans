@@ -53,7 +53,7 @@ If you're tired of the DIY struggle and want a more professional approach, it mi
 Ready to stop guessing and start planning? Take a look at your current goals and see if a custom approach might be the missing piece of your financial puzzle. After all, your money deserves a strategy that's as unique as you are.
 <h2>Related HashTags</h2>
 #ForexManagement #TailoredForex #ForexTrading #InvestmentStrategies #FXAccountManagement #WealthManagement #ForexSignals #TradingPlans #ProfessionalTrading #CurrencyTrading #ForexSuccess #FinancialGrowth #SmartInvesting #PortfolioManagement #ForexExperts
-<h1><strong>Contact Us</strong></h1>
+<h1><strong>Contact Us for Fund Management</strong></h1>
 <ul>
  	<li>
 <h3><strong>Telegram <span style="color: #ff0000;"><a style="color: #ff0000;" href="https://t.me/Forex_Fund_Manage" target="_blank" rel="noopener">@Forex_Fund_Manage</a></span></strong></h3>
